@@ -1,1 +1,1 @@
-Hola este es mi portafolio de proyectos en los cuales he trabajado 
+Hola este es mi portafolio de proyectos, si tienen alguna duda me pueden contactar por: alejandrozarauz06@gmail.com | 0998952376
